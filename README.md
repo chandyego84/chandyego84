@@ -1,7 +1,7 @@
 ### Just trying to learn as much as I can
 
 
-- I'm looking to learn about computers through first principles. If interested in learning with me, contact me.
+- Learning...I hope.
 - Personal: chandlerjuego101@gmail.com
 
 ## &#x1f4c8; GitHub Stats
