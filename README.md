@@ -2,7 +2,7 @@
 
 
 - Learning...I hope.
-- Personal: chandlerjuego101@gmail.com
+- chandlerjuego101@gmail.com
 
 ## &#x1f4c8; GitHub Stats
 
