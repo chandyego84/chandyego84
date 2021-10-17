@@ -1,7 +1,5 @@
 ### Just trying to learn as much as I can
 
-
-- Learning...I hope.
 - chandlerjuego101@gmail.com
 
 ## &#x1f4c8; GitHub Stats
