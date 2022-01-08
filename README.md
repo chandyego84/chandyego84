@@ -2,4 +2,4 @@
 
 - chandlerjuego101@gmail.com
 - Incoming MSFT SWE/PM Intern
-- Metaverse what?
+- Would like my own Metaverse
