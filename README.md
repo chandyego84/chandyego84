@@ -5,4 +5,3 @@
 
 - [Blog](https://chandyego84.github.io/)
 - Email: chandlerjuego101@gmail.com
-- Pursuing PhD in Rizzology
