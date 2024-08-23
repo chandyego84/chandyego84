@@ -3,5 +3,4 @@
 #### I guess they can't, I guess they won't
 #### I guess they front, that's why I know my life is out of luck, fool
 
-- [Blog](https://chandyego84.github.io/)
 - Email: chandlerjuego101@gmail.com
